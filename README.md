@@ -1,1 +1,1 @@
-https://artembartash.github.io/Resume-/
+https://artembartash.github.io/Resume/
